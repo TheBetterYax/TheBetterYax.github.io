@@ -1,1 +1,1 @@
-# TheBetterYax.githug.io
+# TheBetterYax.github.io
